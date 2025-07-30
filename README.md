@@ -11,7 +11,7 @@ ADD HERE: Please add any beginner friendly recipe here
 ### Cultural Recipes
 
 ADD HERE: Please add a recipe from your culture here
-* [sesame noodles with cucumber](https://smittenkitchen.com/2015/08/takeout-style-sesame-noodles-with-cucumber) - Estimated Cook Time 15min (From Yue)
+* [Sesame Noodles with Cucumber](https://smittenkitchen.com/2015/08/takeout-style-sesame-noodles-with-cucumber) - Estimated Cook Time 15min (From Yue)
 
 
 
