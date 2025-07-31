@@ -13,7 +13,7 @@ We hope you'll always remember to eat well as you continue contributing to scien
 ADD HERE: Please add any beginner friendly recipe here 
 * [Tomato Soup](https://smittenkitchen.com/2024/03/weeknight-tomato-soup) - Prep Time 45min (Yue)
 * [Panqueques con Manjar](https://www.chileanfoodandgarden.com/chilean-crepes-dulce-de-leche/) - Prep Time 30min (Ámbar)
-
+* [Seaweed Egg Drop Soup](https://thewoksoflife.com/seaweed-egg-drop-soup/) - Prep Time 15min (Zhe)
 
 
 ### Cultural Recipes
