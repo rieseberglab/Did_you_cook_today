@@ -33,7 +33,7 @@ We hope you'll always remember to eat well as you continue contributing to scien
 * [Cantonese Shrimp and Eggs](https://thewoksoflife.com/shrimp-and-eggs/) - Prep Time 45min (Zhe)
 * [Miso Mackerel](https://www.sirogohan.com/sp/recipe/sabamisoni/amp/) - Prep Time 40min (Kaede)
 * [Kimchi Fried Rice](https://www.maangchi.com/recipe/kimchi-bokkeumbap) - Prep Time 30min (Amy)
-
+* [Egg tteokbokki] (https://futuredish.com/tteokbokki-eggs-doesnt-get-better/) - Prep Time 30min (Haenglim) 
 
 
 
