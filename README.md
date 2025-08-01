@@ -21,7 +21,7 @@ We hope you'll always remember to eat well as you continue contributing to scien
 * [Beef & Rice Bowl](https://thewoksoflife.com/gyudon-recipe-beef-rice/) - Prep Time 30min (Xingwan)
 * [Egg Chicken Bowl](https://cookpad.com/jp/recipes/18442207) - Prep Time 25min (Kaede)
 * [Lemon Garlic Baked Salmon](https://natashaskitchen.com/baked-salmon-with-garlic-and-dijon/) - Prep Time 40min (Amy)
-
+* [Chinese Steamed Egg](https://thewoksoflife.com/chinese-steamed-egg/) - Prep Time 15min (Ji)
 
 ### Cultural Recipes
 * [Fasolakia Lathera](https://www.olivetomato.com/greek-style-green-beans-fasolakia-lathera/) - Prep Time 50min (Yue)
@@ -33,7 +33,7 @@ We hope you'll always remember to eat well as you continue contributing to scien
 * [Cantonese Shrimp and Eggs](https://thewoksoflife.com/shrimp-and-eggs/) - Prep Time 45min (Zhe)
 * [Miso Mackerel](https://www.sirogohan.com/sp/recipe/sabamisoni/amp/) - Prep Time 40min (Kaede)
 * [Kimchi Fried Rice](https://www.maangchi.com/recipe/kimchi-bokkeumbap) - Prep Time 30min (Amy)
-
+* [Fish Fragrant Eggplant (Yuxiang Qiezi) – spicy tomato‑chili eggplant](https://thewoksoflife.com/fish-fragrant-eggplant-yuxiang-qiezi/) - Prep Time ~20min (Ji)
 
 
 
