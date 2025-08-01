@@ -25,6 +25,7 @@ We hope you'll always remember to eat well as you continue contributing to scien
 * [Pan de Muerto](https://www.youtube.com/watch?v=Nzj6cfxeknY&t=3s) - Prep Time several hours (Eric)
 * [Gnudi](https://www.carolinescooking.com/ricotta-and-spinach-gnudi/#recipe) - Prep Time 40min (Natalia)
 * [Alfajores](https://funwithoutgluten.com/gluten-free-alfajores-dulce-de-leche-cookies/) - Prep Time 70min (Natalia)
+* [Cantonese Shrimp and Eggs](https://thewoksoflife.com/shrimp-and-eggs/) - Prep Time 45min (Zhe)
 
 
 
