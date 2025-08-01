@@ -16,8 +16,8 @@ We hope you'll always remember to eat well as you continue contributing to scien
 * [Tofu with Ginger and Soy Sauce](https://github.com/rieseberglab/Did_you_cook_today/blob/main/Tofu_with_Ginger_and_Soy_Sauce.md) - Prep Time 5min (Eric)
 * [Vellutata Di Piselli/ Creamy Pea Soup](https://www.wholesomeyum.com/pea-soup-recipe/) - Prep Time 30min (Natalia)
 * [Yogurt Flatbread](https://www.thebeaderchef.com/easy-3-ingredient-yogurt-flatbread/#wprm-recipe-container-7091) - Prep Time 30min (Natalia), pair with the Pea Soup
-* [Loren’s Granola]() - Prep Time 30min (Loren)
-* [Loren’s fluffy pancakes]() - Prep Time 30min (Loren)
+* [Loren’s Granola](https://github.com/rieseberglab/Did_you_cook_today/blob/main/Granola_by_Loren.md) - Prep Time 30min (Loren)
+* [Loren’s fluffy pancakes](https://github.com/rieseberglab/Did_you_cook_today/blob/main/Pancake_by_Loren.md) - Prep Time 30min (Loren)
 * [Beef & Rice Bowl](https://thewoksoflife.com/gyudon-recipe-beef-rice/) - Prep Time 30min (Xingwan)
 * [Egg Chicken Bowl](https://cookpad.com/jp/recipes/18442207) - Prep Time 25min (Kaede)
 * [Lemon Garlic Baked Salmon](https://natashaskitchen.com/baked-salmon-with-garlic-and-dijon/) - Prep Time 40min (Amy)
