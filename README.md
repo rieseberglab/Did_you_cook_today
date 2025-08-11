@@ -22,6 +22,7 @@ We hope you'll always remember to eat well as you continue contributing to scien
 * [Egg Chicken Bowl](https://cookpad.com/jp/recipes/18442207) - Prep Time 25min (Kaede)
 * [Lemon Garlic Baked Salmon](https://natashaskitchen.com/baked-salmon-with-garlic-and-dijon/) - Prep Time 40min (Amy)
 * [Chinese Steamed Egg](https://thewoksoflife.com/chinese-steamed-egg/) - Prep Time 15min (Ji)
+* [Focaccia](https://alexandracooks.com/2018/03/02/overnight-refrigerator-focaccia-best-focaccia/) - Prep Time 48hours haha but only 5 min hands on time (Raisa) 
 
 ### Cultural Recipes
 * [Fasolakia Lathera](https://www.olivetomato.com/greek-style-green-beans-fasolakia-lathera/) - Prep Time 50min (Yue)
@@ -34,6 +35,7 @@ We hope you'll always remember to eat well as you continue contributing to scien
 * [Miso Mackerel](https://www.sirogohan.com/sp/recipe/sabamisoni/amp/) - Prep Time 40min (Kaede)
 * [Kimchi Fried Rice](https://www.maangchi.com/recipe/kimchi-bokkeumbap) - Prep Time 30min (Amy)
 * [Fish Fragrant Eggplant (Yuxiang Qiezi) – spicy tomato‑chili eggplant](https://thewoksoflife.com/fish-fragrant-eggplant-yuxiang-qiezi/) - Prep Time ~20min (Ji)
+* [Trinidad Curry Chicken](https://cookingwithria.com/2024/04/trinidad-curry-chicken/) - Prep Time 55min (Raisa)
 
 
 
